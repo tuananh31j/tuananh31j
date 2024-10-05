@@ -2,9 +2,6 @@
 
 # 💫About Me :
 From `VN`
-<br/>
-<br/>
-
 Contact: <a target="_blank" href="https://t.me/tuananh31j">
 Telegram
 </a>
