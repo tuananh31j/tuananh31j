@@ -1,4 +1,4 @@
-### Hi, I'm Tuan Anh Nguyen
+### <img src="https://tva1.sinaimg.cn/large/e6c9d24egy1h1571l0uucg205k05egri.gif" width="31" /> Hi, I'm Tuan Anh
 
 # 💫About Me :
 From `VN`
