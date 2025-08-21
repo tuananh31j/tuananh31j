@@ -3,7 +3,7 @@
 # 💫About Me :
 From `VN`
 <br/>
-Contact: <a target="_blank" href="https://t.me/tuananh31j">
+Contact: <a target="_blank" href="mailto:tuananh31j@gmail.com">
 Telegram
 </a>
 <br/>
