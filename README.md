@@ -4,7 +4,7 @@
 From `VN`
 <br/>
 Contact: <a target="_blank" href="mailto:tuananh31j@gmail.com">
-Telegram
+Email
 </a>
 <br/>
 <br/>
